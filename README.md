@@ -1,0 +1,6 @@
+ - 👋 Hi, I’m @ye-kamii
+- 👀 I’m interested in  aprender
+- 🌱 I’m currently learni pensamento computacional  
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me ..
+- 🈹
